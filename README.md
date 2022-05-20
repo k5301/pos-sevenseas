@@ -1,2 +1,3 @@
 # POS: Seven-Seas
-[![Multi-Featured-Calculator](https://img.youtube.com/vi/iGigcBIpA1o/0.jpg)](https://www.youtube.com/watch?v=iGigcBIpA1o)
+[![Multi-Featured-Calculator](https://img.youtube.com/vi/uMpwj2w4iqk/0.jpg)](https://www.youtube.com/watch?v=uMpwj2w4iqk&list=PLzphKUDKeWDzD7WYYHV_Ia2f9Sq6qzBcd&index=7)
+
